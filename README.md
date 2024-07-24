@@ -3,7 +3,7 @@
 #### About me
 
 At the moment (summer of '24), I am an Informatics PhD candidate in the complex networks and systems track at Indiana University.
-Check out my website [www.matthewdeverna.com](https://www.matthewdeverna.com) for the latest information about what I am doing in the world.
+Check out my website [www.matthewdeverna.com](https://www.matthewdeverna.com) for the latest information about what I am doing in the world, as I do not update this very often.
 
 #### Links
 - Twitter/X: [@mdeverna2](https://x.com/mdeverna2)
