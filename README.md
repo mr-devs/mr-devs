@@ -20,5 +20,5 @@ I surfed the couches of friends I made along the way in Barcelona and, later, ra
 Given the serendipitous nature of the encounter, we decided to travel together.
 We worked north from Madrid through various Spanish towns to Pamplona where, [while running with the bulls in the (in)famous festival](https://en.wikipedia.org/wiki/Running_of_the_bulls), I lost my shoes and almost got gored. 🏃‍♂️
 Next, I met an old friend from America in England.
-We bought a crappy car and attempted to drive to Mongolia.
+We bought a crappy car (bright red VW Polo 🚗!) and attempted to drive to Mongolia.
 Ultimately, our car died in a desert in Kazakhstan, but we did successfully cross the [Pamir Highway](https://en.wikipedia.org/wiki/M41_highway), starting in Dushanbee, Uzbekistan, and finishing in Osh, Kyrgyzstan.
